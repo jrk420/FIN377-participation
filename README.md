@@ -1,1 +1,0 @@
-# FIN377-participation
